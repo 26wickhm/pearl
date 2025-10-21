@@ -15,3 +15,6 @@ Today Scarlett and Caroline printed out an alternate option for the video game m
 
 10/10/25
 Today Karlin started researching methods on how to attach a water bottle holder to a wheelchair. She discovered that using a holster similar to a bike water bottle holder would work best. She then moved on to designing and researching the best waterbottle and straw attachment. 
+
+10/21/25
+Today we put together our schedules in a spreadsheet to compare when we can host meetings with the other students that want to be involved with Pearl. This involved marking what days we can come before or stay after and assign projects such as mass printing jobs or recreating designs for us. Once we have a full meeting outside of school, it will be much easier to catch up during community time during school and check in on their progress and/or assign new tasks. This will be helpful because the younger/less experienced kids can get involved and help without having too much responsibility. This is also a cool opportunity for the four of us because we can focus on design and programming (the more creative side of Pearl) and less on watching the 3D printers crank out ten of the same design. However, it is good for theother students to learn how to handle all of the tools in the lab so it is a win win for both parties. 
